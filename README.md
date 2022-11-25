@@ -1,1 +1,1 @@
-Deliverance Church
+Deliverance Church Kampala Uganda
